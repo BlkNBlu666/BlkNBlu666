@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BlkNBlu666
+- 👀 I’m interested in The Hunger Games.
+- 🌱 I’m currently learning Python.
+- 💞️ I’m looking to collaborate on a Game.
+- 📫 How to reach me Pandygirl111@gmail.com
